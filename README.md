@@ -58,6 +58,6 @@ Interaction history is stored for future reference, ensuring personalized assist
 # **📞 Contact**
 For queries or collaboration:
 
--Ranjith Kumar P
--Email: ranjithkumarp.309@gmail.com
--LinkedIn: https://www.linkedin.com/in/ranjith-kumar-b66180250/
+-Kaviya Priya S
+-Email: kaviyapriya071@gmail.com
+-LinkedIn: https://www.linkedin.com/in/kaviya-priya-019a2623a/
