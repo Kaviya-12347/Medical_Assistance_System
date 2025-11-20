@@ -59,5 +59,7 @@ Interaction history is stored for future reference, ensuring personalized assist
 For queries or collaboration:
 
 -Kaviya Priya S
+
 -Email: kaviyapriya071@gmail.com
+
 -LinkedIn: https://www.linkedin.com/in/kaviya-priya-019a2623a/
